@@ -7,3 +7,4 @@ For follow up assignments
 
 The work will be used for paper preparations before publication 
 
+I think that this is a great start to our collaboration.
